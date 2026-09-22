@@ -5,4 +5,4 @@ Levi Clem Brito
 
 Leonardo Braga de Faria
 
-Pedro Arthur Santanna Pimental
+Pedro Arthur Santanna Pimentel
